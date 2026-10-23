@@ -1,0 +1,2 @@
+# thug
+članek iz wikipedije
